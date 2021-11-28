@@ -4,6 +4,6 @@ By Billythegoat356 // Pandore
 
 -----------------------------------------------------------
 
-Remake  By  LixoInGitHub7564 // Sega
+Remake  By  LixoInGitHub7564 // Sega-
 
 -----------------------------------------------------------
